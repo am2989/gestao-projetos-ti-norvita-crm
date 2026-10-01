@@ -62,4 +62,4 @@ Governança de projeto · Planeamento e cronogramas · Gestão de riscos · Orç
 ## Autora
 
 Alda Benta
-<!-- Adicione aqui a ligação para o seu perfil de LinkedIn -->
+<www.linkedin.com/in/alda-benta>
